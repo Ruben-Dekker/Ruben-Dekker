@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Ruben-Dekker, Industrial Designer and Digital Developer based in the Netherlands
+- 👋 Hi, I’m @Ruben-Dekker, Industrial Designer and Developer based in the Netherlands
